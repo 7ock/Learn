@@ -1,2 +1,2 @@
 # Learn
-- so hard to git it
+- so hard to get it
