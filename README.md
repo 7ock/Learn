@@ -1,2 +1,2 @@
 # Learn
-- so hard to get it
+- Bridges are strong, tunnel light.
